@@ -1,1 +1,1 @@
-# codeck.github.io
+# code-mania.github.io
